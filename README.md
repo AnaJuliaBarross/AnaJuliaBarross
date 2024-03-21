@@ -2,7 +2,7 @@
 
 ### Atualmente curso Desenvolvimento de Sistemas, e pretendo um dia ser cientista da computação.
 
-Gosto de ouvir música alto, criar cénarios falsos(muitas vezes de lutas épicas), ficar na escola(laboratório) e ficar com meu namorado.😎✨
+Gosto de ouvir música alto, criar cénarios falsos(muitas vezes de lutas épicas), ficar na escola(laboratório) e quero uma placa de video.
 
 # EXPERIÊNCIAS...
 
